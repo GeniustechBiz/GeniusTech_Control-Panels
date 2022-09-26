@@ -1,0 +1,2 @@
+# GeniusTech_Control-Panels
+Organization To Domain Work Documents For Developer Forum Android OS Version And Desktops Installed Others Operating Systems Windows and Multiplex Features Granted Ideals Computing Machine Described Data from Yourself And Take-out Google Play Store Install It Address Fixed Issues Reported To Myself Admin Panel Of My Projects And Programs Maybe You Could Have Been Working On Global Inspection Reported All Need Inspiration Abouts 
